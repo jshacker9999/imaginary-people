@@ -1,1 +1,1 @@
-# imaginary-people
+# Imaginary people
